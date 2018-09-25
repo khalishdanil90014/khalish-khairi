@@ -1,0 +1,2 @@
+# khalish-khairi
+Aplikasi BIODATA
